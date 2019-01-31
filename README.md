@@ -8,4 +8,4 @@ los cambios que hemos realizado en ese archivo.
 
 2. **Si la Tierra no es plana, ¿por qué se le llama "planeta"?**
 
-Si que es plana D:!!!!! Kappa
+Si que es plana D:!!!!!!! Kappa
